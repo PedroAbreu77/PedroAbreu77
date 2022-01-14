@@ -9,7 +9,7 @@ Tecnologias que atuo:
 
 Ainda estou estudando Full Stack!
 
-Em meu tempo livre, gosto de assitir serio,videos, filmes de ação e aventura(📺), tocar piano, teclado (🎸) e ouvir música (🎵), ler alguns livros (📚).
+Em meu tempo livre, gosto de assitir series,videos, filmes de ação e aventura(📺), tocar piano, teclado (🎸) e ouvir música (🎵), ler alguns livros (📚).
 
 Quer bater um papo ou me encontrar? 👋
 Acesse meu instagram 
